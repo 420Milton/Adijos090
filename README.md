@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Adijos090
+- 👋 Hi, I’m @Adijos
 - 👀 I’m interested in FiveM script
-- 📫 How to reach me Discord Adijos090#0420
+- 📫 How to reach me Discord Adijos#8931
 
